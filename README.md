@@ -43,7 +43,7 @@ ACT I. SCENE I.Portius, Marcus.Por.THE Dawn is over-caſt, the Morning low'rs,An
     _ SCENE IV.
 ACT II. SCENE I.The Senate.Sem.ROME ſtill ſurvives in this aſſembled Senate!Let us remember we are C
     _ ACT II. SCENE I.
-ACT III. SCENE I.Marcus and Portius.Marc.THanks to my Stars, I have not ranged aboutThe Wilds of Lif
+ACT III. SCENE I.Marcus and Portius.Marc.THanks to my Stars, I have not ranged about The Wilds of Lif
     _ ACT III. SCENE I.
 ACT IV. SCENE I.Lucia and Marcia.Luc.NOW tell me, Marcia, tell me from thy Soul,If thou believ'ſt it
     _ ACT IV. SCENE I.
